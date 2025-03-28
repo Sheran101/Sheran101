@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Frameworks<br><br>👨‍💻 All of my projects are available at https://sheran.netlify.app<br><br>📫 How to reach me sheranranjulla@gmail.com<br><br>⚡ Fun fact I think i'm Funnyy
+🌱 I’m currently learning Frameworks<br><br>👨‍💻 All of my projects are available at https://sheran.netlify.app<br><br>📫 How to reach me sheranranjula@gmail.com<br><br>⚡ Fun fact I think i'm Funnyy
 
 
 ## 🌐 Socials:
